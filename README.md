@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Mingo1998
+- 👀 I’m interested in sports, crypto, history
+- 🌱 I’m currently learning languages
+- 💞️ I’m looking to collaborate on everything interesting
